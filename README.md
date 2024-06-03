@@ -1,1 +1,1 @@
-Estudante de Engenharia de Computação na Escola Politecnica da USP EP-USP
+Estudante de Engenharia de Computação na Escola Politecnica da USP
